@@ -25,7 +25,7 @@
 
 ## 📚 My Skills
 
-none - i improvise in this dark land which is called life <br>
+None - I improvise in this dark land called life. <br>
 ;)
 
 </div>
