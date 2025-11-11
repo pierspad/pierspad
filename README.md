@@ -23,9 +23,9 @@
 
 <div align="center">
 
-## 📚 My Skills
+## Skills ?
 
-None - I improvise in this dark land called life. <br>
+I have no skills - I improvise in this dark land called life. <br>
 ;)
 
 </div>
