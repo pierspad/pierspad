@@ -23,14 +23,6 @@
 
 <div align="center">
 
-## Skills ?
-
-I have no skills - I improvise in this dark land called life. <br>
-;)
-
-</div>
-
-
 <br><br>
 
 <a href="https://www.linkedin.com/in/pierpaolospadafora" target="_blank">
